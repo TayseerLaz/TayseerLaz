@@ -62,7 +62,7 @@
 ## Education & Languages
 • **B.E. Computer & Communication Engineering** — Rafic Hariri University (ABET-accredited)  
 
-• **Languages:** Arabic (Native) • English (Fluent) • French (B2) 
+• **Languages:** Arabic (Native) • English (Fluent) 
 
 ---
 
